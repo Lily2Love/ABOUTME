@@ -2,4 +2,7 @@
 
 # <p align="center">⤷ ゛Elliot and Andrew Lover ˎˊ
 
-me over here trying to get all my friends to gift me Andrew and Elliot ponys..  THIS IS A WIP
+
+<p align="right">Some of my other favorite characters are pest and azure ⋆ .˚
+
+
