@@ -5,5 +5,5 @@
 
 <p align="right">⤷ Some of my other favorite characters are pest, Gavin and Azure ⋆ .˚
 
-  
-
+  ♡ you'll mainly find me on pony town and roblox with my friends ₍ᐢ. .ᐢ₎ ₊˚⊹
+<p align="center">⤷ if I'm alone you are welcome to join me.ᐟ
