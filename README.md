@@ -6,6 +6,4 @@
 <p align="right">⤷ Some of my other favorite characters are pest and azure ⋆ .˚
 
   
-₊⊹ ‪I TAKE REALLY GOOD CARE OF MY ANDREW PLUSH ˚. ᵎᵎ
-<p align="center">⤷ living the dream
 
