@@ -1,9 +1,12 @@
-<p align="center"><img width="140" height="140" alt="PIZZA" src="https://github.com/user-attachments/assets/7f768868-15c5-4094-a09d-c5f00323489d" /><img width="140" height="140" alt="9ba9aa923b70e1a9c55f9ed504217c28-removebg-preview" src="https://github.com/user-attachments/assets/5e7e2e0b-5e97-47b3-b888-d19bd15b6ef9" />
-
- <p align="center">⤷ ゛Elliot and Andrew Lover ˎˊ
 
 
-<p align="right">⤷ Some of my other favorite characters are pest, Gavin and Azure ⋆ .˚
 
-  ♡ you'll mainly find me on pony town and roblox with my friends ₍ᐢ. .ᐢ₎ ₊˚⊹
+ <p align="center"><img width="200" height="200" alt="Kawaii Princess" src="https://github.com/user-attachments/assets/cf211736-0d9d-4496-8c20-cd8e9d16a8b4" />
+
+ 
+<p align="center">some things to know about me below.
+<p align="center">I'm a young adult but I'm ok with anyone as long as you don't make me uncomfortable, if you do I will express it. something to keep in mind is that I'm also dyslexic. some fun things are that I'm currently working to get as many Andrew from bad things gifted pony's that I can! Andrew being my comfort character at the moment, but some others i like are Elliot from work at a pizza place, pest from Regretevator, and Gavin from the mall game along with a couple more.
+ 
+ <p align="center"> you'll mainly find me on pony town, roblox, and mincraft with my friends ₍ᐢ. .ᐢ₎ ₊˚⊹
 <p align="center">⤷ if I'm alone you are welcome to join me.ᐟ
+
