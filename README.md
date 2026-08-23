@@ -5,7 +5,7 @@
 
  
 <p align="center">some things to know about me below.
-<p align="center">I'm a young adult but I'm ok with anyone as long as you don't make me uncomfortable, if you do I will express it. something to keep in mind is that I'm also dyslexic. some fun things are that I'm currently working to get as many Andrew from bad things gifted pony's that I can! Andrew being my comfort character at the moment, but some others i like are Elliot from work at a pizza place, pest from Regretevator, and Gavin from the mall game along with a couple more.
+<p align="center">mainly use github for pony town! anyways, I'm a young adult but I'm ok with anyone as long as you don't make me uncomfortable, if you do I will express it. something to keep in mind is that I'm also dyslexic. some fun things are that I'm currently working to get as many Andrew from bad things gifted pony's that I can! Andrew being my comfort character at the moment, but some others i like are Elliot from work at a pizza place, pest from Regretevator, and Gavin from the mall game along with a couple more.
  
  <p align="center"> you'll mainly find me on pony town, roblox, and mincraft with my friends ₍ᐢ. .ᐢ₎ ₊˚⊹
 <p align="center">⤷ if I'm alone you are welcome to join me.ᐟ
