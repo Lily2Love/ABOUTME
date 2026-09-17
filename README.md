@@ -2,7 +2,11 @@
 
 
 <p align="center"><img width="1071" height="544" alt="Screenshot 2026-09-16 202601" src="https://github.com/user-attachments/assets/a3edb712-4081-46f2-a539-c9649762d76f" />
-<p align="RIGHT"> art by @R3QUI3MSINN3R on github 
+
+  
+ 
+[art by @R3QUI3MSINN3R on github](https://github.com/R3QUI3MSINN3R)
+
 
 $$ \color{#fcbac8}{ \huge \text{ some things to know about me as a person}} $$
 
