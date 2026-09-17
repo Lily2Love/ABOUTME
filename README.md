@@ -1,8 +1,8 @@
 
 
 
- <p align="center"> <img width="200" height="200" alt="bb5511e67cf675bf601e77fe2698be97-removebg-preview" src="https://github.com/user-attachments/assets/cd132531-13ea-4d60-b46e-8989c1c4386b" />
-
+<p align="center"><img width="1071" height="544" alt="Screenshot 2026-09-16 202601" src="https://github.com/user-attachments/assets/a3edb712-4081-46f2-a539-c9649762d76f" />
+<p align="RIGHT"> art by @R3QUI3MSINN3R on github 
 
 $$ \color{#fcbac8}{ \huge \text{ some things to know about me as a person}} $$
 
