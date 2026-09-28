@@ -1,10 +1,7 @@
 
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31npuiqr6qjvrqjmrz5o3eeyjlea&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31npuiqr6qjvrqjmrz5o3eeyjlea&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
-  </a>
-</p>
+<p align="center"><img width="1071" height="544" alt="Screenshot 2026-09-16 202601" src="https://github.com/user-attachments/assets/77915a7d-3e89-4410-85d4-138545ff3984" />
 
+  [art by @R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
 
 $$ \color{#f6336d}{ \huge \text{ some things to know about me as a person}} $$
 
@@ -16,5 +13,9 @@ $$ \color{#3c8d77}{ \ \text{ ⤷ you're not forced to read!}} $$
 $$ \color{#f6336d}{ \huge \text{ some things to know about me on pony town}} $$
   <p align="center">you'll normally find me by the bakery. I love meeting new people so don't be scared to come up to me, but I do go off tab a lot so maybe W2I? also, I don't usually mind ships as long as you're not weird about it. like you can sit with me, I don't mind. lastly, I normally don't care about my spelling, so just try your best to understand what I'm trying to say.
 
-
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31npuiqr6qjvrqjmrz5o3eeyjlea&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31npuiqr6qjvrqjmrz5o3eeyjlea&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
+  </a>
+</p>
 
