@@ -1,5 +1,6 @@
 
-<p align="center"><img width="1071" height="544" alt="Screenshot 2026-09-16 202601" src="https://github.com/user-attachments/assets/77915a7d-3e89-4410-85d4-138545ff3984" />
+<p align="center"><img width="450" height="450" alt="Screenshot 2026-05-14 203207" src="https://github.com/user-attachments/assets/3615087f-c6bd-4fb2-b439-441a0bf4254a" />
+
 
   [art by @R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
 
