@@ -1,7 +1,6 @@
 
 <p align="center"><img width="450" height="450" alt="Screenshot 2026-05-14 203207" src="https://github.com/user-attachments/assets/3615087f-c6bd-4fb2-b439-441a0bf4254a" />
 
-
   [art by @R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
 
 $$ \color{#f6336d}{ \huge \text{ some things to know about me as a person}} $$
@@ -19,4 +18,9 @@ $$ \color{#f6336d}{ \huge \text{ some things to know about me on pony town}} $$
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31npuiqr6qjvrqjmrz5o3eeyjlea&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
   </a>
 </p>
+
+<p align="center"><img width="99" height="56" alt="633451619-a4fae0a6-06d5-4647-baaa-3721bb13aba4" src="https://github.com/user-attachments/assets/6a87103e-4837-4281-94c1-1d76061b7779" /><img width="99" height="56" alt="c12" src="https://github.com/user-attachments/assets/e4752f3e-b219-4f98-a2ca-6e42033eef98" />
+
+
+
 
