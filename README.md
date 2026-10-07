@@ -23,5 +23,5 @@ $$ \color{#3dad14}{ \ \text{ ⤷ you're not forced to read!}} $$
 </summary>
 
 <p align="center">
-  <a href="https://github.com/R3QUI3MSINN3">art by @R3QUI3MSINN3R on GitHub</a>
+  <a href="https://github.com/R3QUI3MSINN3R">art by @R3QUI3MSINN3R on GitHub</a>
 </p>
