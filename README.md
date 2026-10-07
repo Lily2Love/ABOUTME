@@ -1,4 +1,4 @@
-
+<p align="center"><img width="550" height="390" alt="Screenshot 2026-05-14 204257" src="https://github.com/user-attachments/assets/753c9184-4d3c-4234-b459-7f5d2d2ebf6c" />
 
 
 $$ \color{#ec3a89}{ \huge \text{ some things to know about me as a person}} $$
@@ -16,7 +16,11 @@ $$ \color{#3dad14}{ \ \text{ ⤷ you're not forced to read!}} $$
 </p>
 
 <p align="center"><img width="99" height="56" alt="633451619-a4fae0a6-06d5-4647-baaa-3721bb13aba4" src="https://github.com/user-attachments/assets/6a87103e-4837-4281-94c1-1d76061b7779" /><img width="99" height="56" alt="c12" src="https://github.com/user-attachments/assets/e4752f3e-b219-4f98-a2ca-6e42033eef98" />
+<details>
+  <summary
+    
+<p align="center"> ★
+</summary>
 
-
-
+[ art by @R3QUI3MSINN3R on GitHub ](https://github.com/R3QUI3MSINN3R)
 
