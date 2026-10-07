@@ -22,5 +22,5 @@ $$ \color{#3dad14}{ \ \text{ ⤷ you're not forced to read!}} $$
 <p align="center"> ★
 </summary>
 
-[ art by @R3QUI3MSINN3R on GitHub ](https://github.com/R3QUI3MSINN3R)
+<p align="center">[ art by @R3QUI3MSINN3R on GitHub ](https://github.com/R3QUI3MSINN3R)
 
