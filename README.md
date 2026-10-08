@@ -1,4 +1,4 @@
-<p align="center"><img width="254" height="25" alt="3f95c264" src="https://github.com/user-attachments/assets/c8b0eb54-8440-4408-8e68-244c1b1d9443" /><img width="254" height="25" alt="3f95c264" src="https://github.com/user-attachments/assets/3b8a21e4-700d-43b1-86dd-548b371c824c" />
+<p align="center"><img width="50" height="50" alt="d3l7r5c-cfe5fc9c-a00f-48dc-8311-7e8f7c9e2942" src="https://github.com/user-attachments/assets/487650bd-ffad-4531-86d8-cfcb63506eaf" /><img width="50" height="50" alt="vaporeon_3" src="https://github.com/user-attachments/assets/ae8e9aa4-8388-4b9a-827b-0795b904eff7" />
 
 
 <p align="center"><img width="550" height="390" alt="Screenshot 2026-05-14 204257" src="https://github.com/user-attachments/assets/753c9184-4d3c-4234-b459-7f5d2d2ebf6c" />
