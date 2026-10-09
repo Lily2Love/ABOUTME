@@ -1,4 +1,4 @@
-   <p align="center"><img width="50" height="50" alt="d3l7r5c-cfe5fc9c-a00f-48dc-8311-7e8f7c9e2942" src="https://github.com/user-attachments/assets/487650bd-ffad-4531-86d8-cfcb63506eaf" /><img width="50" height="50" alt="vaporeon_3" src="https://github.com/user-attachments/assets/ae8e9aa4-8388-4b9a-827b-0795b904eff7" />
+
 
 <p align="center"><img width="550" height="390" alt="Screenshot 2026-05-14 204257" src="https://github.com/user-attachments/assets/753c9184-4d3c-4234-b459-7f5d2d2ebf6c" />
 
@@ -22,7 +22,8 @@ $$ \color{#3dad14}{ \ \text{ ⤷ you're not forced to read!}} $$
   <summary
 <p align="center"> ★
 </summary>
-   
+
 <p align="center">
-  <a href="https://github.com/R3QUI3MSINN3R">art of my Andrew cosplay on Roblox by @R3QUI3MSINN3R on GitHub</a>
+  <a href="https://github.com/R3QUI3MSINN3R">art by @R3QUI3MSINN3R on GitHub</a>
 </p>
+<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1c79d8d1-fe4d-4a78-918d-5b59a7c84497" />
