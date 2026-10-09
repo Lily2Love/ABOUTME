@@ -26,4 +26,3 @@ $$ \color{#3dad14}{ \ \text{ ⤷ you're not forced to read!}} $$
 <p align="center">
   <a href="https://github.com/R3QUI3MSINN3R">art by @R3QUI3MSINN3R on GitHub</a>
 </p>
-<p align="center"><img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/1c79d8d1-fe4d-4a78-918d-5b59a7c84497" />
