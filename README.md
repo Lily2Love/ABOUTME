@@ -8,7 +8,7 @@ $$ \color{#ec3a89}{ \huge \text{ some things to know about me as a person}} $$
 $$ \color{#3dad14}{ \ \text{ ⤷ you're not forced to read!}} $$
    
 <p align="center">call me Lily, Elly, or you may know me as Lulu (my old online name). I'm ok with anyone as long as you don't make me uncomfortable, if you do, I will express it. something to keep in mind is that I'm also dyslexic, so my English is bad. 
-<p align="center">  some fun things are that I'm currently working to get as many Andrew, from bad things, pony's that I can! Andrew being my comfort character at the moment, but some others I like are Elliot from work at a pizza place or forsaken, Pest from Regretevator, Gavin/Gabriel from the mall game, and Mafioso from dream game or forsaken along with a couple more from some other games and/or shows and movies. of course, out of all of those, I am the biggest fan of bad things 
+<p align="center">  some fun things are that I'm currently working to get as many Andrew, from bad things, pony's that I can! Andrew being my comfort character at the moment, but some others I like are Elliot from work at a pizza place or forsaken, Pest from Regretevator, Gavin/Gabriel from the mall game, and Mafioso from dream game or forsaken along with a couple more from some other games and/or shows and movies. of course, out of all of those, I am the biggest fan of bad things!
 
 
 
